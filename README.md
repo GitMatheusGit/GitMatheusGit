@@ -1,4 +1,4 @@
-## "Eu sou eu, porque você não é eu,apena eu sou eu"
+## "Eu sou eu, porque você não é eu, apena eu sou eu"
 ## -EU 2024
 
 <!--
